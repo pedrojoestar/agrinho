@@ -1,2 +1,2 @@
 https://www.pixilart.com/
-chatgpt.com
+https://chatgpt.com/
